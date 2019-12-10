@@ -1,1 +1,3 @@
-Saiba mais em como saber as coisas 
+
+
+Gostou do curso? E venha me dar um abraço, sabe que eu te adoro
